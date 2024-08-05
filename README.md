@@ -1,8 +1,7 @@
 # Bitspublicity
 ## Pravinsinh Devubha Zala
 ### Address: Plot No. 329, Ward 3/B, Adipur, Kutch, Gujarat 370205
-+91 9375354303
-- GST No: 24AABPZ3821F1ZU
++91 9375354303 - GST No: 24AABPZ3821F1ZU
 
 ---
 
